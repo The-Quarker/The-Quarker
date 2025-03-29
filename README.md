@@ -3,8 +3,8 @@
 - If you want to DM me, it's on discord (Ⱥ𝕟өₙẙ𝓶⁰ߎ∾✵𝕽𝖊𝖛𝖊𝖗𝖘𝖊𝖉#8165).
 - Thanks for your time to read this.
 
-wtf is this old description fuck that
-founder of the tetragon organization of science and the quadronics technological institution
+wtf is this old description fuck that <br>
+founder of the tetragon organization of science and the quadronics technological institution <br>
 GLORY TO THE ORGANIZATION
 
 <!---
